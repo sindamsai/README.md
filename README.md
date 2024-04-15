@@ -1,4 +1,4 @@
-# Sindamsai/README.md
+
 # Hi there 👋, I'm Sai Sidhartha Raj Sindam
 
 I'm a dynamic and results-oriented Project Delivery Specialist with extensive experience in recruiting services and technologies. I have a proven track record of executing recruitment operations and driving end-to-end recruiting and hiring lifecycles. I'm skilled in advising on recruitment strategies and managing candidate experiences. I possess exceptional communication and collaboration abilities.
